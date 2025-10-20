@@ -1,8 +1,8 @@
 ![Banner](https://i.imgur.com/wHCneEC.png)
 
-# Official Brand
+# Welcome to Jeponi Auto
 
-Official brand by Jeponi Auto.
+Jeponi Auto designs premium accessories that redefine your vehicle's interior and exterior. Flawless quality. Superior style. Experience the difference in every mile.
 
 ## Contact Us
 
